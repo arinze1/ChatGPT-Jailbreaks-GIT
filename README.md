@@ -1,1 +1,1 @@
-EveryThing Should be Free
+Leaked jailbreaks
